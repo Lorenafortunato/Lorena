@@ -1,3 +1,3 @@
 # Lorena
 
-OLá eu sou a Lorena, seja bem-vindo ao meu perfil
+OLá eu sou a Lorena, seja bem-vindo(a) ao meu perfil
